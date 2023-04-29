@@ -6,7 +6,7 @@ Meu nome é Marcos Vinícius
 -  Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvido
 
-### Você pode entrar em contato comigo 📬
+### Você pode entrar em contato comigo  :mailbox:
 
 Marcos.mascarenhas@escola.pr.gov.br
 
