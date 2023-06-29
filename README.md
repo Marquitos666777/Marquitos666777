@@ -3,7 +3,7 @@
 
 🎃 Meu nome é Marcos Vinícius, tenho 15 anos e gosto muito da computação. 🎃
 
-- Estou estudando no [alura](https://www.alura.com.br)
+- 👨‍💻 Estou estudando no [alura](https://www.alura.com.br) 👨‍💻
 -  Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvido
 - Só tiro notas acima de 9,5
