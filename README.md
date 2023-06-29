@@ -1,4 +1,4 @@
-### 🥳 Welcome to my profile here you can get to know me better 🥳
+### 👻 Welcome to my profile here you can get to know me better 👻
 
 Meu nome é Marcos Vinícius, tenho 15 anos e gosto muito da computação.
 
