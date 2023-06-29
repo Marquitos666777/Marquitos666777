@@ -1,5 +1,6 @@
 ### 👻 Welcome to my profile here you can get to know me better 👻
 
+
 Meu nome é Marcos Vinícius, tenho 15 anos e gosto muito da computação.
 
 - Estou estudando no [alura](https://www.alura.com.br)
@@ -13,6 +14,6 @@ Meu nome é Marcos Vinícius, tenho 15 anos e gosto muito da computação.
 
 Marcos.mascarenhas@escola.pr.gov.br
 
-@Marquitos666777
+![ghost](https://github.com/Marquitos666777/Marquitos666777/assets/132093013/31a07c3d-db40-4067-9356-6e055fa14ba9)
 
-![](https://tenor.com/QmoD.gif)
+
