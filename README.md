@@ -10,6 +10,7 @@
 - Amo conhecer outras linguas e diferentes culturas
 - Sou um menino feliz e adoro estudar
 - Cantor Favorito: lil peep
+- 👾 Amo jogar 👾 
 
 ### Você pode entrar em contato comigo  :mailbox:
 
