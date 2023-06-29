@@ -7,6 +7,7 @@ Meu nome é Marcos Vinícius, tenho 15 anos e gosto muito da computação.
 - Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvido
 - Só tiro notas acima de 9,5
 - Amo conhecer outras linguas e diferentes culturas
+- Sou um menino feliz e adoro estudar
 
 ### Você pode entrar em contato comigo  :mailbox:
 
