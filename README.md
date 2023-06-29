@@ -15,4 +15,4 @@ Marcos.mascarenhas@escola.pr.gov.br
 
 @Marquitos666777
 
-![](https://tenor.com/bpG7K.gif)
+![](https://tenor.com/QmoD.gif)
