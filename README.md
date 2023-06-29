@@ -13,7 +13,7 @@
 - 👾 Amo jogar 👾
 - ⭐️ Estilo Músical: rock, metal trap, trap br e trap us ⭐️
 
-### Você pode entrar em contato comigo  :mailbox:
+### 📝 Você pode entrar em contato comigo 📝
 
 ✅ Marcos.mascarenhas@escola.pr.gov.br ou número de contato: 41 99108-7980 ✅
 
