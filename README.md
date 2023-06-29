@@ -1,7 +1,7 @@
 ### 👻 Welcome to my profile here you can get to know me better 👻
 
 
-Meu nome é Marcos Vinícius, tenho 15 anos e gosto muito da computação.
+🎃 Meu nome é Marcos Vinícius, tenho 15 anos e gosto muito da computação. 🎃
 
 - Estou estudando no [alura](https://www.alura.com.br)
 -  Estou me desenvolvendo na linguagem JavaScript
