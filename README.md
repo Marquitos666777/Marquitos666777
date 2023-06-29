@@ -9,6 +9,7 @@ Meu nome é Marcos Vinícius, tenho 15 anos e gosto muito da computação.
 - Só tiro notas acima de 9,5
 - Amo conhecer outras linguas e diferentes culturas
 - Sou um menino feliz e adoro estudar
+- Cantor Favorito: lil peep
 
 ### Você pode entrar em contato comigo  :mailbox:
 
