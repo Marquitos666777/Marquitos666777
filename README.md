@@ -11,6 +11,7 @@
 - 🌈 Sou um menino feliz e adoro estudar 🌈
 - ☠️ Cantor Favorito: lil peep ☠️   
 - 👾 Amo jogar 👾
+- 👯‍♀️ tenho 20950 jogos na steam 👯‍♀️
 - 🕶 Zerei o minecraft 1006 vezes e tenho 2236h jogados 🕶
 - ⭐️ Estilo Músical: rock, metal trap, trap br e trap us ⭐️                           
 ![котик-playing-guitar](https://github.com/Marquitos666777/Marquitos666777/assets/132093013/2f64ece0-8026-435c-a096-34c1eca7043a)        
