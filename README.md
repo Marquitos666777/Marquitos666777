@@ -17,7 +17,7 @@
 
 ### 📝 Você pode entrar em contato comigo 📝
 
-✅ Marcos.mascarenhas@escola.pr.gov.br ou número de contato: 41 99108-7980 ✅
+✅ Marcos.mascarenhas@escola.pr.gov.br ou número de contato: 41 98486-3908 ✅
 
 ![partying-cat-party](https://github.com/Marquitos666777/Marquitos666777/assets/132093013/800a0e4f-f60a-47bd-aa8d-527e5af3d82c)
 
