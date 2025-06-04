@@ -1,10 +1,12 @@
 
 🙃 Olá, me chamo Marcos Vinícius, tenho 17 anos e gosto muito da computação. 🙃 
+
+![applecatrun-apple-cat](https://github.com/Marquitos666777/Marquitos666777/assets/132093013/0b907c8c-cf6e-4409-8e7c-8d0f15ec21b2)
                                                                              
 - 👨‍💻 Estou estudando no [alura](https://www.alura.com.br) 👨‍💻
 - 💎 Estou me desenvolvendo na linguagem JavaScript 💎                                                            
 - ❄️ Utilizo esse espaço para minha organização e compartilhamento dos meu projetos desenvolvido ❄️                                                              
-- 🔥 Só tiro notas acima de 9,5 🔥                                                                                                                                                 ![applecatrun-apple-cat](https://github.com/Marquitos666777/Marquitos666777/assets/132093013/0b907c8c-cf6e-4409-8e7c-8d0f15ec21b2)
+- 🔥 Só tiro notas acima de 9,5 🔥                                                                                                                                                 
 - 🥶 Amo conhecer outras linguas e diferentes culturas 🥶                                                                                          
 - 🌈 Sou um menino feliz e adoro estudar 🌈
 - ☠️ Cantor Favorito: lil peep ☠️   
