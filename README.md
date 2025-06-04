@@ -1,4 +1,4 @@
-### ☄️ Welcome to my profile here you can get to know me better ☄️
+
 ![applecatrun-apple-cat](https://github.com/Marquitos666777/Marquitos666777/assets/132093013/0b907c8c-cf6e-4409-8e7c-8d0f15ec21b2)
 🙃 Meu nome é Marcos Vinícius, tenho 17 anos e gosto muito da computação. 🙃 
                                                                              
